@@ -115,4 +115,4 @@ aalbin.joseph@btech.christuniversity.in
 
 alan.koshy@btech.christuniversity.in
 
-mervyn.varghese@btech.christuniversity.in
+mervyn.regeo@btech.christuniversity.in
